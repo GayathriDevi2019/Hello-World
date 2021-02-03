@@ -9,8 +9,7 @@
 <h1> All the best.................... </h1>
 
 
-
-<h1> All the best.................... </h1>
+<h1> Thanks for connecting and guiding </h1>
 
 
 
